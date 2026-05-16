@@ -1,1 +1,2 @@
 # DIMAS-SETIAWAN-PEMROGRAMAN-WEB-TUGAS-6
+file:///C:/Users/User/OneDrive/%E6%96%87%E6%A1%A3/web-web%20suka-suka/PEMROGRAMAN%20WEB%20TUGAS%206/index.html
